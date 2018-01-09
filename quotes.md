@@ -1,0 +1,1 @@
+1. [Stop touching me with your eyes.](https://www.amazon.com/Shatter-Me-Tahereh-Mafi/dp/0062085506?SubscriptionId=AKIAJTSZJQ3RY4PK4ONQ&tag=quotecat-20&linkCode=xm2&camp=2025&creative=165953&creativeASIN=0062085506)
