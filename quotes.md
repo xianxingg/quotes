@@ -2,3 +2,4 @@
 2. [Ancient lovers believed a kiss would literally unite their souls, because the spirit was said to be carried in one’s breath.](https://quotecatalog.com/quote/eve-glicksman-ancient-lovers-WplJWG1/)
 3. [Those who bring sunshine to the lives of others cannot keep it from themselves](https://quotecatalog.com/quote/jm-barrie-those-who-bring-Z72MJn1/)
 4. [She is suffering and is at the same time calm and gay.](https://quotecatalog.com/quote/franz-kafka-she-is-sufferin-N70dYD7/)
+5. [Don’t tell them too much about your soul. They’re waiting for just that.](https://quotecatalog.com/quote/jack-kerouac-dont-tell-th-XpGrjk7/)
