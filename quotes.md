@@ -5,3 +5,4 @@
 5. [Don’t tell them too much about your soul. They’re waiting for just that.](https://quotecatalog.com/quote/jack-kerouac-dont-tell-th-XpGrjk7/)
 6. [Things that matter are not easy. Feelings of happiness are easy. Happiness is not. Flirting is easy. Love is not. Saying you’re friends is easy. Being friends is not.](https://quotecatalog.com/quote/zpWQEV1/?utm_source=64px)
 7. [Everybody said, 'Follow your heart.' I did, it got broken.](https://quotecatalog.com/quote/agatha-christie-everybody-said-b1rgGD7/)
+8. [All I wanted was just everybody else wants, you know, to be loved.] (https://quotecatalog.com/quote/rita-hayworth-all-i-wanted-wa-wa9Edqa/)
