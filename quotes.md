@@ -7,3 +7,4 @@
 7. [Everybody said, 'Follow your heart.' I did, it got broken.](https://quotecatalog.com/quote/agatha-christie-everybody-said-b1rgGD7/)
 8. [All I wanted was just everybody else wants, you know, to be loved.](https://quotecatalog.com/quote/rita-hayworth-all-i-wanted-wa-wa9Edqa/)
 9. [The more you love, the more you suffer.](https://quotecatalog.com/quote/vincent-van-gogh-the-more-you-lo-X7qvMAp/)
+10. [It is well known that those who do not trust themselves never trust others.](https://quotecatalog.com/quote/alfred-adler-it-is-well-know-g7O52Oa/)
