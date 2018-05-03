@@ -8,3 +8,4 @@
 8. [All I wanted was just everybody else wants, you know, to be loved.](https://quotecatalog.com/quote/rita-hayworth-all-i-wanted-wa-wa9Edqa/)
 9. [The more you love, the more you suffer.](https://quotecatalog.com/quote/vincent-van-gogh-the-more-you-lo-X7qvMAp/)
 10. [It is well known that those who do not trust themselves never trust others.](https://quotecatalog.com/quote/alfred-adler-it-is-well-know-g7O52Oa/)
+11. [A lot of people tell me I’m a bit dreamy. But I like the idea of that. Of being somewhere else.](https://quotecatalog.com/quote/alex-turner-a-lot-of-people-KpYLGy7/)
