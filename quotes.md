@@ -9,3 +9,5 @@
 9. [The more you love, the more you suffer.](https://quotecatalog.com/quote/vincent-van-gogh-the-more-you-lo-X7qvMAp/)
 10. [It is well known that those who do not trust themselves never trust others.](https://quotecatalog.com/quote/alfred-adler-it-is-well-know-g7O52Oa/)
 11. [A lot of people tell me I’m a bit dreamy. But I like the idea of that. Of being somewhere else.](https://quotecatalog.com/quote/alex-turner-a-lot-of-people-KpYLGy7/)
+12. [The best way I can love you is by not losing myself in you, but growing with you.](https://quotecatalog.com/quote/navin-e-the-best-way-i-KpYJLga/)
+13. [The demand to be loved is the greatest kind of arrogance.](https://quotecatalog.com/quote/friedrich-nietzsche-the-demand-to-b-Ra3Rz2p/)
