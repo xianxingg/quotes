@@ -11,3 +11,4 @@
 11. [A lot of people tell me I’m a bit dreamy. But I like the idea of that. Of being somewhere else.](https://quotecatalog.com/quote/alex-turner-a-lot-of-people-KpYLGy7/)
 12. [The best way I can love you is by not losing myself in you, but growing with you.](https://quotecatalog.com/quote/navin-e-the-best-way-i-KpYJLga/)
 13. [The demand to be loved is the greatest kind of arrogance.](https://quotecatalog.com/quote/friedrich-nietzsche-the-demand-to-b-Ra3Rz2p/)
+14. [I wanted anything because I didn't want anything enough.](https://quotecatalog.com/quote/lang-leav-i-wanted-everyt-XpGGLbp/)
