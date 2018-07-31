@@ -12,3 +12,4 @@
 12. [The best way I can love you is by not losing myself in you, but growing with you.](https://quotecatalog.com/quote/navin-e-the-best-way-i-KpYJLga/)
 13. [The demand to be loved is the greatest kind of arrogance.](https://quotecatalog.com/quote/friedrich-nietzsche-the-demand-to-b-Ra3Rz2p/)
 14. [I wanted anything because I didn't want anything enough.](https://quotecatalog.com/quote/lang-leav-i-wanted-everyt-XpGGLbp/)
+15. [If there was no fear, how could there be comfort? Or courage?](https://quotecatalog.com/quote/veronica-rossi-if-there-was-no-P7vwGgp/)
