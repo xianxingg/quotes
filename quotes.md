@@ -14,3 +14,4 @@
 14. [I wanted anything because I didn't want anything enough.](https://quotecatalog.com/quote/lang-leav-i-wanted-everyt-XpGGLbp/)
 15. [If there was no fear, how could there be comfort? Or courage?](https://quotecatalog.com/quote/veronica-rossi-if-there-was-no-P7vwGgp/)
 16. [As time goes on, you'll understand. What lasts, lasts; what doesn't, doesn't. Time solves most things. And what time can't solve, you have to solve yourself.](https://quotecatalog.com/quote/haruki-murakami-as-time-goes-on-9aJMgJp/)
+17. [May I'll be lost no matter how many times I am found again.](https://quotecatalog.com/quote/tyler-knott-gregson-maybe-ill-be-w7gdMEp/)
