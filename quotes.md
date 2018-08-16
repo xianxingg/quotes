@@ -16,3 +16,4 @@
 16. [As time goes on, you'll understand. What lasts, lasts; what doesn't, doesn't. Time solves most things. And what time can't solve, you have to solve yourself.](https://quotecatalog.com/quote/haruki-murakami-as-time-goes-on-9aJMgJp/)
 17. [May I'll be lost no matter how many times I am found again.](https://quotecatalog.com/quote/tyler-knott-gregson-maybe-ill-be-w7gdMEp/)
 18. [If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were.](https://quotecatalog.com/quote/L75gRNa/?utm_source=64px)
+19. [That’s how you know you really **trust** someone, I think; when you don’t have to talk all the time to make sure they still like you or prove that you have interesting stuff to say](https://quotecatalog.com/quote/sara-zarr-thats-how-yo-WplXE2p/)
